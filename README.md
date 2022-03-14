@@ -1,0 +1,2 @@
+# Kahoot-Cheat
+VISIT THE WEBSITE FOR THE SCRIPT.
